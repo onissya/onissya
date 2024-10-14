@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **romoniss00@gmail.com**
 
-- ⚡ Fun fact **I thunk I'm funny and kind**
+- ⚡ Fun fact **I think I'm funny and kind**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
